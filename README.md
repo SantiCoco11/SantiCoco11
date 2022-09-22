@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SantiCoco11
-- 👀 I’m interested in  aprender y mejorar mis capacidades para programar
+- 👀 I’m interested in  in learning and improving my programming skills
 - 🌱 I’m currently learning  CSS- HTML JAVASCRIPT
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me  A traves de correo santi11886@gmail.com O tel +57 3164817382
